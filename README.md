@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DarienPrall
-- 🎯 My goal is to work for Apple one day!
+- 🎯 My goal is to work for Apple!
 - 📜 I’m currently enrolled in Capella University's Bachelor of Computer Science
 - 💡 I embrace creativity and seek opportunities to innovate and solve complex problems
 - 🌲 I prioritize the environment and focus on ways to limit my ecological footprint
